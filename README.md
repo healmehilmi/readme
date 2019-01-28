@@ -1,1 +1,1 @@
-# readme
+Junior Web developer,Grafik designer
